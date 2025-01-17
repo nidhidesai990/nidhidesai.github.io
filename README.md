@@ -2,7 +2,6 @@
 # Nidhi Desai
 
 📧 **Email**: nidhi.desai990@gmail.com  
-📞 **Phone**: 551-247-8080  
 📍 **Location**: New York, NY  
 🔗 **LinkedIn**: [linkedin.com/in/nidhi-desai-843b4a24](https://www.linkedin.com/in/nidhi-desai-843b4a24)  
 
